@@ -1,4 +1,4 @@
-WELCOME CREATORS!!
+
 # Unlock the Music Flow  
 **A Spiritual Cleanse & Sound Awakening Ritual for Blocked Creators**  
 *By Kaelion Virel*
